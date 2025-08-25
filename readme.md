@@ -1,1 +1,1 @@
-Ceci est mon projet
+La rentrée est dans deux semaines
